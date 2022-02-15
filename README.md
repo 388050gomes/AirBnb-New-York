@@ -5,7 +5,7 @@
 </p>
 
 # Francisco Gomes
-<sub>*Economista e Físico*</sub>
+<sub>*Economista, Físico e Analista - Codevasf*</sub>
 
 Com rápida experiência profissional na área da Física, atualmente exerço minhas atividades laborais como economista. Tendo propor mecanismos que promovam a redução da pobreza rural por meio da organização de fatores em empreendimentos produtivos. Tal organização busca independência financeira e sustentabilidade do empreendimento.
 
